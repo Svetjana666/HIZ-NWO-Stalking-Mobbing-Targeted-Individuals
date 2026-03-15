@@ -26,7 +26,7 @@ Die Wasserzeichen-Jingles sind:
 
 ## Kontext zur Täterschaft
 
-- Rainer Winkler ist **nicht** H.I., sondern Rainer Winkler ist eines der bekanntesten Opfer der NWO (New World Order) Cybermobbing-Kartells
+- Rainer Winkler ist **nicht** H.I.Z, sondern Rainer Winkler ist eines der bekanntesten Opfer der NWO (New World Order) Cybermobbing-Kartells
 - Thomas Deike ist der Anführer dieses Kartells
 - Die Verbindung durch identische Wasserzeichen ist einer der wenigen direkten Beweise für Deikes Täterschaft
 
